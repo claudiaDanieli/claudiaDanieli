@@ -12,4 +12,4 @@ Meu  nome é Claudia Danieli dos Santos Gomes
 
 
 
-https://media.tenor.com/EvXOBGTFWg4AAAAd/not-funny-eye-roll.gif 
+!.{}https://media.tenor.com/EvXOBGTFWg4AAAAd/not-funny-eye-roll.gif)
